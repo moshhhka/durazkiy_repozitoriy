@@ -1,0 +1,1 @@
+# durazkiy_repozitoriy
